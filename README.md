@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Priyanshgaur01
 - 👀 I’m interested in traveling & listening music 
-- 🌱 I’m currently learning python
+- 🌱 I’m currently learning something interesting 
 - 💞️ I’m looking to collaborate on...
 - 📫 How to reach me ...
 
